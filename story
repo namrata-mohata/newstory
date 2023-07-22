@@ -1,0 +1,1 @@
+Once there was a thirsty crow.He was looking for water but couldnot find any .He thenn saw earthen pot but there was very little water in it.He put pebbles drank water and flew away.
